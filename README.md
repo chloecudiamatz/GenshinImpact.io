@@ -1,1 +1,0 @@
-# GenshinImpact.io
